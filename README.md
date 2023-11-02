@@ -1,5 +1,4 @@
 🚴‍♀️ Hi, I’m Bethania Sequera (@BethSequera) 
-**Data Analyst | Data Enthusiast | Educator**
 
 📊 I’m interested in data analysis, data science, and data-related roles.
 
